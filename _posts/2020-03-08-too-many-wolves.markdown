@@ -30,6 +30,8 @@ uhh what
 
 another wolf has appeared
 
+&nbsp;
+
 okay that one's not as cool but just ignore that and gaze
 
 on the wolf king ablaze
