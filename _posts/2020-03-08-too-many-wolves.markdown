@@ -12,7 +12,8 @@ where the forest swallows the road and
 
 the darkness turns to vapor, the pines are ink and paper
 
-\
+&nbsp;
+
 grab my hand through these bushes, take your shoes off for these cobbles
 
 stop here at this cliff, look down I insist
@@ -29,7 +30,6 @@ uhh what
 
 another wolf has appeared
 
-\
 okay that one's not as cool but just ignore that and gaze
 
 on the wolf king ablaze
@@ -50,7 +50,8 @@ okay this is starting to be
 
 too many wolves
 
-\
+&nbsp;
+
 okay i don't know why there's randomly, such a calamity
 
 this number-of-wolves depravity
@@ -73,7 +74,8 @@ jesus christ
 
 sorry, this is embarrassing
 
-\
+&nbsp;
+
 oh perfect now they're doing their little howls too
 
 whatever, this night's a bust, let's go home
