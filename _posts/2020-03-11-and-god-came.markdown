@@ -2,8 +2,6 @@ _This is a translation of my recently deceased [granddad's](https://en.wikipedia
 
 &nbsp;
 
-&nbsp;
-
 Devant mon regard accablé,
 
 _In front of my overwhelming gaze,_
