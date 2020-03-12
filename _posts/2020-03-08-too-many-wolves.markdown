@@ -1,12 +1,12 @@
-the best night of the year, is finally here
+The best night of the year, is finally here
 
-my new love, grab the hiking gear, wine and towel
+My new love, grab the hiking gear, wine and towel
 
 tonight the wolf king will howl
 
-come with me, away
+Come with me, away
 
-through the moon soaked bay
+Through the moon soaked bay
 
 where the forest swallows the road and
 
@@ -14,15 +14,15 @@ the darkness turns to vapor, the pines are ink and paper
 
 &nbsp;
 
-grab my hand through these bushes, take your shoes off for these cobbles
+Grab my hand through these bushes, take your shoes off for these cobbles
 
-stop here at this cliff, look down I insist
+Stop here at this cliff, look down I insist
 
-watch
+Watch
 
 for the wolf of the grotto
 
-once a year he appears
+Once a year he appears
 
 silver-fire seared
 
@@ -34,13 +34,13 @@ another wolf has appeared
 
 okay that one's not as cool but just ignore that and gaze
 
-on the wolf king ablaze
+On the wolf king ablaze
 
-leaving glowing ashes behind, the best of his kind
+Leaving glowing ashes behind, the best of his kind
 
-stalks to the crest of the grotto and inhales, a bristling flame to its tail
+Stalks to the crest of the grotto and inhales, a bristling flame to its tail
 
-the whole forest curves for the wolf's scream without words
+The whole forest curves for the wolf's scream without words
 
 I grab your hand tighter for the wolf king's howl, the dry night's lighter
 
@@ -66,7 +66,7 @@ Ah! A tension from his snout to his rear, it would appear
 
 the Wolf King will, through his subjects irritating chatter, howl still
 
-come in close, my dear, ignore that other wolf peeing and hear
+Come in close, my dear, ignore that other wolf peeing and hear
 
 sonic perfection, piercingly clear, the moment it swallows the world is so near
 
