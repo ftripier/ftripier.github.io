@@ -36,7 +36,7 @@ was born:
 
 a brand new thought
 
-surges from where there was only mourning:
+surged from where there was only mourning:
 
 the most beautiful moments
 
