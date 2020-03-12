@@ -2,62 +2,6 @@ _This is a translation of my recently deceased [granddad's](https://en.wikipedia
 
 &nbsp;
 
-**French**
-
-Devant mon regard accablé,
-
-dans la pénombre, seul
-
-sur la petite table de bagnard
-
-vint une fourmi.
-
-&nbsp;
-
-Calme
-
-et sûre d'elle, agile
-
-comme une puce
-
-et pleine d'une joie légeère,
-
-elle découvrit dans une fissure
-
-une miete de pain.
-
-&nbsp;
-
-Et dans mon âme
-
-se fit le jour:
-
-&nbsp;
-
-une pensée toute neuve
-
-surgit là où tout fut le deuil:
-
-les plus beaux instants
-
-ne sont pas éclairés
-
-par la soleil. Il n'y a pas
-
-de misére
-
-dans laquelle la patience
-
-d'une fourmi
-
-ne trouvera pas une étincelle
-
-pur éclairer le coeur
-
-endolori.
-
-&nbsp;
-
 **English**
 
 In front of my overwhelming gaze,
@@ -111,6 +55,62 @@ will not make the spark
 that casts light upon the heart
 
 in suffering.
+
+&nbsp;
+
+**French**
+
+Devant mon regard accablé,
+
+dans la pénombre, seul
+
+sur la petite table de bagnard
+
+vint une fourmi.
+
+&nbsp;
+
+Calme
+
+et sûre d'elle, agile
+
+comme une puce
+
+et pleine d'une joie légeère,
+
+elle découvrit dans une fissure
+
+une miete de pain.
+
+&nbsp;
+
+Et dans mon âme
+
+se fit le jour:
+
+&nbsp;
+
+une pensée toute neuve
+
+surgit là où tout fut le deuil:
+
+les plus beaux instants
+
+ne sont pas éclairés
+
+par la soleil. Il n'y a pas
+
+de misére
+
+dans laquelle la patience
+
+d'une fourmi
+
+ne trouvera pas une étincelle
+
+pur éclairer le coeur
+
+endolori.
 
 &nbsp;
 
