@@ -22,7 +22,7 @@ like a flea
 
 and full of weightless joy
 
-she discovers in a table hinge
+she discovered in a table hinge
 
 a crumb of bread.
 
