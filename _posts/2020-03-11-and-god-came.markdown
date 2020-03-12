@@ -1,5 +1,9 @@
 _This is a translation of my recently deceased [granddad's](https://en.wikipedia.org/wiki/Mirko_Vidovi%C4%87) poem "Et Dieu Vint" (and God came) from french to english, which he wrote while in jail for activism against Tito's regime in Croatia._
 
+&nbsp;
+
+&nbsp;
+
 Devant mon regard accablé,
 
 _In front of my overwhelming gaze,_
