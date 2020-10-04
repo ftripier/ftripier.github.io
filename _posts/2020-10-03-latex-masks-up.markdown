@@ -14,9 +14,9 @@ the unsuspecting faces that cling to us
 
 the streetlights that move by too quickly
 
-The worms trapped under our skin
+the worms trapped under our skin
 
-the silence that screams so righteously
+the silence that screams after us
 
 the photographs sometimes held in our gloves
 
@@ -28,7 +28,7 @@ the ghosts of those we must meet
 
 the families we imagine for them
 
-the reasons we sputter back when the thoughts are louder
+the louder thoughts we drown with muttered reasons
 
 the lives we should have lead instead
 
