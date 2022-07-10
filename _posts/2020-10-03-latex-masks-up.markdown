@@ -6,19 +6,19 @@ the dew of guilt on our foreheads
 
 the dim amber of the city’s night
 
-the dutiful roar of the unmarked van that entombs us
+the roar of the van
 
-the vacant stares we make out of the windows
+the stares out of windows
 
-the unsuspecting faces that cling to us
+the faces that cling to us
 
-the streetlights that move by too quickly
+the streetlights that move too quickly
 
-the worms trapped under our skin
+the worms under our skin
 
-the silence that screams after us
+the silence that screams behind us
 
-the photographs sometimes held in our gloves
+the photos in our gloves
 
 the songs we played in better times
 
@@ -28,7 +28,7 @@ the ghosts of those we must meet
 
 the families we imagine for them
 
-the louder thoughts we drown with muttered reasons
+the louder thoughts
 
 the lives we should have lead instead
 
